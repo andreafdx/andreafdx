@@ -1,4 +1,4 @@
-## 👋 Hi, I’m @andreafdx
+👋 Hi, I’m @andreafdx
 
 
 <!---
